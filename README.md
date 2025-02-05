@@ -1,7 +1,7 @@
 # Foundation Game PC Windows Torrent Free Download
 
 ## [Free Download The Sims Legacy Collection PC Windows 🕹️](https://www.gamerepacks.com/simulation/the-sims-legacy-collection/)
-![Uploading WX20250205-115845@2x.png…]()
+![WX20250205-115845@2x](https://github.com/user-attachments/assets/ba7e2abf-4f15-48c9-ac49-acc0878f9dbd)
 
 ## What is Foundation?
 Foundation is a medieval city-building simulation game developed by Polymorph Games. It features a gridless, organic city-planning system that allows players to create their own unique settlements. The game emphasizes resource management, monument construction, and dynamic village growth.
